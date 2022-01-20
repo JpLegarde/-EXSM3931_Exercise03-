@@ -1,0 +1,1 @@
+i like computers and dont have much expierence but iam wanting to and willing to learn 
